@@ -14,6 +14,7 @@ My missions:
 -"crazy" business ideas and spreading the word: I've got a few articles (Crazy Ideas Platform - CIP) on my LinkedIn profile
 
 📨 E: thu@chainsafe.io
+
 🤝 Linktree: https://linktr.ee/thu_ubi_chainsafe
 
 I would like you to be aware of the following (I have no affiliation with them):
